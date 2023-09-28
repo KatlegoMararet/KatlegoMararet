@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KatlegoMararet
+- 👋 Hi, I’m @KatlegoMargarett
 - 👀 I’m interested in eveything Tech and Art.
 - - 🌱 I’m currently learning Software Development.
 - 📫 How to reach me katlegomargarett@gmail.com
